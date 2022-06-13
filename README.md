@@ -1,5 +1,5 @@
 - 👋 Oi! Meu nome é Sam
 - 👀 Estou interessado em estudos psicologicos e arte <3
 - 🌱 Estou estudando arte e programação
-- 💞️ Eu amo arte, animais, meus amigo e musica
+- 💞️ Eu amo arte, animais, meus amigos e musica
 - 📫 Como me achar: samdiangelo@gmail.com
